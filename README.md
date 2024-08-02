@@ -1,1 +1,1 @@
-# dashboard-project you are a super idiot 
+# dashboard-project you are a super idiot .
